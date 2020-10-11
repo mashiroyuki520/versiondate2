@@ -1,2 +1,4 @@
 git is a version control system
-git is free software
+mashiro yukino is a lovely girl
+I love yukino
+yukino and jim are lovers
